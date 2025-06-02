@@ -167,7 +167,7 @@ Questions or feedback? Reach out via [LinkedIn](https://www.linkedin.com/in/rixs
 
 
 ### 🙌 **Contributors**
-#### [Bindushree s n](https://github.com/rixscx) <br>
+#### [Bindushree s n](https://github.com/Bindushreegowdasn) <br>
 #### under guidance of [Dr Agughasi Victor Ikechukwu](https://github.com/Victor-Ikechukwu) <br>
 ---
 
